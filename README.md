@@ -1,0 +1,1 @@
+# Desafios-GFT-QA-Desafios-Intermedi-rios---GFT-QA-1
